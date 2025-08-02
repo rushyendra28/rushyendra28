@@ -1,1 +1,1 @@
-https://github.com/user-attachments/assets/898df7dc-0d8c-475a-800f-1de8f51d0c62
+![low30fps](https://github.com/user-attachments/assets/19211cbe-bfd0-4eac-b41c-d629a0780c59)
