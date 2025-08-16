@@ -1,1 +1,1 @@
-![Drift Porsche GIF by Type7](https://github.com/user-attachments/assets/75e0c14f-1cd1-4071-8c5c-19816e2c88f7)
+![Happy Jim Carrey GIF](https://github.com/user-attachments/assets/bcc0fff0-391b-49a0-a709-1a8195540a8e)
