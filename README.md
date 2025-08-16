@@ -1,1 +1,1 @@
-![Bored Cowboy Bebop GIF](https://github.com/user-attachments/assets/88f8660a-3ced-40bb-a427-2eaec73a73cc)
+![gif](https://github.com/user-attachments/assets/d19c669d-9827-424a-b528-534c220e9eb7)
